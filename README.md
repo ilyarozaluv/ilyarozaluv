@@ -3,7 +3,8 @@
                Raidan / Saleos - 17 - HE / HIM 
                       check my strawpage!
                              <3
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTptEP7o1BBRB_Llp2EWJwrEC1jpLaEXIWX1g&amp;s" alt="Seguin traded to Dallas" 
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTptEP7o1BBRB_Llp2EWJwrEC1jpLaEXIWX1g&amp;s" alt="Seguin traded to Dallas"/>
+
 
 
                           PT info --
