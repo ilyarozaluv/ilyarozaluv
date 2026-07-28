@@ -1,19 +1,20 @@
-# ilyarozaluv
-     "the all time leading goal scorer, Alexander Ovechkin!!"
-               Raidan / Saleos - 17 - HE / HIM 
-                      check my strawpage!
-                             <3
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTptEP7o1BBRB_Llp2EWJwrEC1jpLaEXIWX1g&amp;s" alt="Seguin traded to Dallas"/>
+# ChosenOfMyrkul
+   "I am the smile of the worm-cleansed skull. I am the regrets of those who remain, and the restlessness of those who are gone. I am the the haunt of mausoleums, the god of graves and age, of dust and dusk. I am Myrkul, Lord of Bones, and you have slain my chosen. But it is no matter. For I am Death. And I am not the end - I am a beginning."
+   
+   <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/cc3c9027-6841-4dd3-8d16-6cbabfa201ba" />
 
+Raidan / Ilya - He / Vamp! 
 
+Vampire Sire + Coven Lord. 
 
-                          PT info --
-       Typically Either Hockey or Eddsworld ponies
-                Safe Server: Spawn / LNG Area 
-               Party: National Freak Leauge (HqvVXizU)
-<img src="https://images2.minutemediacdn.com/image/upload/c_fill,w_1440,ar_1440:810,f_auto,q_auto,g_auto/shape/cover/sport/1ceef93119cb4792cf357038a0bf519c1456701b50b3d3b98f078db540158c00.jpg" alt="Oilers reliance on Connor McDavid and Leon Draisaitl is unsustainable" />
+Read my strawpage, its really boring but whatevs!!
+ 
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/6191af54-6299-451e-b905-d5b4c2aeb888" />
 
+Im all over the place on ponytown, but I hang around spawn or the Lego Area Alot!! Do not be afraid to wsp!! 
 
-                        Hockey Info --
-       Dallas Stars / Ottawa Senators (with a side of bos) 
-                 Bennguin + Marcharon enjoyer
+If i am in my cazador skin, please do not cuddle with me as astarion. i am not a cazstar shipper. 
+
+Party : National freak leauge {HqvVXizU}
+
+  <img width="1000" height="150" alt="image" src="https://github.com/user-attachments/assets/6caf7022-afa6-4922-a57c-685ff263f0b1" />
